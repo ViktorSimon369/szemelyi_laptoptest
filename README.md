@@ -1,0 +1,1 @@
+# szemelyi_laptoptest
